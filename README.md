@@ -9,4 +9,6 @@ A IT Student from south of France ☀️ Actually studying in La Plateforme Mars
 ⚡ Fun fact I am a best Fortnite 
 
 Languages and Tools:
-angular bash c csharp css3 figma git html5 java javascript linux mysql photoshop python after effects swift
+angular bash c csharp css3 figma git ![image](https://github.com/user-attachments/assets/bb7a185a-fb60-4718-a182-25348518ef5c)
+ java javascript linux mysql photoshop python after effects swift ![Uploading image.png…]()
+
