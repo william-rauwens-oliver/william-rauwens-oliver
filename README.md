@@ -6,4 +6,4 @@ A IT Student from south of France ☀️ Actually studying in La Plateforme Mars
 
 📫 How to reach me william.rauwens-oliver@laplateforme.io
 
-⚡ Fun fact I am a best Fortnite 
+⚡ Fun fact I am a best Fortnite Player
