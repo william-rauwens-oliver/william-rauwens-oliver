@@ -1,5 +1,5 @@
-Hi 👋, I'm William
-A IT Student from south of France ☀️ Actually studying in La Plateforme Marseille, I try to do my best to reach the top of programer
+Hi 👋, I'm William, I am 17 years old
+A IT Student from south of France ☀️ Actually studying in La Plateforme, I try to do my best to reach the top of programer
 🔭 I’m currently working on Marseille, France
 
 🌱 I’m currently learning PHP, JavaScript, Swift, Java and more
