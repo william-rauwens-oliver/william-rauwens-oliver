@@ -7,4 +7,4 @@ A IT Student from south of France ☀️ Actually studying in La Plateforme, I t
 
 📫 How to reach me william.rauwens-oliver@laplateforme.io
 
-⚡ Fun fact I am a best Fortnite Player
+⚡ Fun fact I am a best Fortnite Player | Best Artist is TheWeeknd 💫
